@@ -28,7 +28,32 @@ When int!!</b>
   <img src="https://64.media.tumblr.com/28b60da1c2ba4afe0f44e94241ec936d/2959237cc189138b-f1/s540x810/b400d972efff52ba48e1efb683e66e05fa44bd93.gifv" />
 </p>
 
+------------
 
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/3594706d0171dc70e856fa1c7addd4a6/e1363fcb45235c50-15/s400x600/eb045b4f29efa9be0310b7c25b9fab47bc2dc66b.pnj" />
+</p>
+
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/d59e7ea3f13791d419fcbf7108480ea4/e1363fcb45235c50-fe/s250x400/22a975a0309076b59b933ab9e633c01c063d9989.pnj" />
+</p>
+
+mafiaso irl (forsaken/dream game) / graves irl (call of duty)
+
+DNI;
+p3dos, above 21+, "weird" people (creeps.)
+z00s, fictionkin doubles (with some expections.)
+
+INT;
+same fandoms!, if ur cool :3, 
+i can be anxious sometimes so pls be careful
+
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/f80a16d066f157d024c1313c7b9410be/8cbaf19959c2890a-ba/s400x600/adc459469229ef5f059350592e0e3ff06ac60edc.pnj" />
+</p>
 <!--
 **H3LLCASTED/h3llcasted** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
