@@ -47,6 +47,11 @@ mafiaso irl (forsaken/dream game) / graves irl (call of duty)
 DNI;
 p3dos, above 21+, "weird" people (creeps.)
 z00s, fictionkin doubles (with some expections.)
+main doubles i DO not want;
+phillip graves
+könig 
+mafiaso
+and astro
 
 
 INT;
