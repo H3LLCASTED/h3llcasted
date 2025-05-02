@@ -41,19 +41,22 @@ When int!!</b>
 </p>
 
 <div align="center">
+  
 mafiaso irl (forsaken/dream game) / graves irl (call of duty)
 
-
+--
 DNI;
 p3dos, above 21+, "weird" people (creeps.)
 z00s, fictionkin doubles (with some expections.)
+
+--
 main doubles i DO not want;
-phillip graves
-könig 
-mafiaso
-and astro
+phillip graves,
+könig,
+mafiaso,
+astro, and russia (CH)
 
-
+--
 INT;
 same fandoms!, if ur cool :3, 
 i can be anxious sometimes so pls be careful
