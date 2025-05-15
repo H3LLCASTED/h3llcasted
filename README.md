@@ -42,15 +42,16 @@ When int!!</b>
 
 <div align="center">
   
-mafiaso irl (forsaken/dream game) / graves irl (call of duty)
+**mafiaso irl (forsaken/dream game) / graves irl (call of duty)**
 
 --
-DNI;
+**DNI;**
 p3dos, above 21+, "weird" people (creeps.)
 z00s, fictionkin/irl doubles (with some expections.)
 
 --
-main doubles i DO not want;
+**main doubles i DO not want;**
+
 phillip graves,
 könig,
 mafiaso,
@@ -58,18 +59,21 @@ astro, and russia (CH)
 and prob nightmare!sans
 
 --
-thin ice; 
+**thin ice;**
+
 ponytown 'systems' (Its more of a personal thing.)
 people who oversexualize call of duty characters
 or military characters in general. 
 
 --
-INT;
-same fandoms!, if ur cool :3, 
+**INT;**
+
+same fandoms!, if ur cool :3, call of duty fans, undertale au fans, etc.
 
 
 --
-Iwc;
+**Iwc;**
+
 I am a very anxious person, im not good at talking to new people. you can int with me but I maybe bbe a bit offputting
 I will just hide you if I dont like you or youve done something to me I dont like.
 I dont talk about this much but I do suffer with OSDD, which is similar to DID. I am NOT comfortable talking about it.
