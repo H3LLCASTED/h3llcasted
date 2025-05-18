@@ -47,7 +47,7 @@ When int!!</b>
 --
 **DNI;**
 p3dos, above 21+, "weird" people (creeps.)
-z00s, fictionkin/irl doubles (with some expections.)
+z00s, fictionkin/irl doubles (with some expections.) I hide/block freely. 
 
 --
 **main doubles i DO not want;**
@@ -57,6 +57,7 @@ könig,
 mafiaso,
 astro, and russia (CH)
 and prob nightmare!sans
+I WILL BLOCK AND HIDE YOU.
 
 --
 **thin ice;**
