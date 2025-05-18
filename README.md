@@ -18,6 +18,7 @@
 <h2 style="color:#FF9999; font-family:Verdana, sans-serif;">15-17 // <span style="color:#FF6666;">He</span> / <span style="color:#FF3333;">Any</span></h2>
 
 <p style="color:#990000; font-size:20px; font-family:'Courier New', monospace; text-shadow: 1px 1px 5px #660000;">
+  dx. osdd system. 
 <b>Be careful<br>
 When int!!</b>
 </p>
