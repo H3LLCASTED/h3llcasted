@@ -63,7 +63,7 @@ I WILL BLOCK AND HIDE YOU.
 --
 **thin ice;**
 
-ponytown 'systems' (Its more of a personal thing.)
+systems (Its more of a personal thing, nothing against yall personally /lh )
 people who oversexualize call of duty characters
 or military characters in general. 
 
