@@ -63,7 +63,8 @@ I WILL BLOCK AND HIDE YOU.
 --
 **thin ice;**
 
-systems (Its more of a personal thing, nothing against yall personally /lh )
+systems (Its more of a personal thing, nothing against yall personally /lh 
+CRK, Genshin, Fandoms.
 people who oversexualize call of duty characters
 or military characters in general. 
 
