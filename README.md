@@ -55,10 +55,11 @@ z00s, fictionkin/irl doubles (with some expections.) I hide/block freely.
 
 phillip graves,
 könig,
-mafiaso,
-astro, and russia (CH)
-and prob nightmare!sans
+mafiaso, 
+and russia (CH)
+
 I WILL BLOCK AND HIDE YOU.
+
 
 --
 **thin ice;**
